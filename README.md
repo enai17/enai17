@@ -1,6 +1,6 @@
 ## Enaiavan Vethan Nalathamby 👋
 
-**'Master-of-the-Universe (Financial Analyst/Mathematician/Philosopher)'**
+**Master-of-the-Universe (Financial Analyst/Mathematician/Philosopher)**
 
 This space is a reflection of my journey through finance, AI, and other areas that spark my curiosity. I use GitHub as a platform for continuous exploration and learning, primarily focusing on open-source projects that push the boundaries of innovation in the digital world.
 
