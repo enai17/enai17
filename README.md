@@ -1,4 +1,4 @@
-## Enaiavan Vethan Nalathamby 👋
+## Enaiavan Venthan Nalathamby 👋
 
 **Master-of-the-Universe (Financial Analyst/Mathematician/Philosopher)**
 
